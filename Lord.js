@@ -2,7 +2,7 @@
 
 	🔕 KLO MAU RE UPLOAD IZIN DULU, BACA DESK VIDEO
 	
-	 Order sc untuk jualan game, kebutuhan sosmed, pulsa, dll. Cek https://wa.me/p/4670890746303230/62887435047326
+	 Order sc untuk jualan game, kebutuhan sosmed, pulsa, dll. Cek https://wa.me/62882007289925
 	
 	 Jika ada module yang kurang bisa chat saya di wa
 */
